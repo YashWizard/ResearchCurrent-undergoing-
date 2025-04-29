@@ -1,1 +1,1 @@
-pls refer the GUM_LINE NOTEBOOK 
+pls refer the all the NOTEBOOKs
